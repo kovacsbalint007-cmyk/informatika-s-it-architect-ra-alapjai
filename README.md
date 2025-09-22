@@ -1,0 +1,1 @@
+# informatika-s-it-architect-ra-alapjai
